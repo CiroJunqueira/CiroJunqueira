@@ -5,5 +5,5 @@ posto alguns projetos e estudos que pratico diariamente.
 
 Contatos:
 
-https://www.linkedin.com/in/ciro-junqueira/ -------
-cirojunqueira1@gmail.com
+https://www.linkedin.com/in/ciro-junqueira/    
+E-mail: cirojunqueira1@gmail.com
